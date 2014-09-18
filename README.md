@@ -28,21 +28,19 @@ Dia: 1″,  Length: 29.5 | Quantity: 4
 Dia: 1″,  Length: 21 inch | Quantity: 2
 Dia: 1″,  Length: 51 inch | Quantity: 1
 
+
 2) PIPE FITTING LIST
 Steve’s Desk – Kee Klamp fittings sourced at farmtek.com (~$60 + shipping)
 I shopped around for the lowest kee klamp prices.  If you find a cheaper source than farmtek, let me know.
 10016407 – Quik Klamp Base Flange 1 1/4" (for 1.66" OD Pipe), QTY 4
 10015106 – Quik Klamp 1" Short Tee (for 1.315" OD Pipe), QTY 6
 
-ex.
- 
-
-
 
 3) DESKTOP
 IKEA Linnmon top.  $35.99
 I purchased from the Sunrise, FL location. Can also be shipped for an extra 10 bucks.
 http://www.ikea.com/us/en/catalog/products/10251352/#/50251350 
+
 
 4) MISC PARTS
 •	16 wood screws to attach the flanges to the desk bottom. 3 bucks at Home Depot.
